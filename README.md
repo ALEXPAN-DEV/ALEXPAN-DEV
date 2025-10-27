@@ -1,1 +1,1 @@
-<img width="1000" height="665" alt="image" src="https://github.com/user-attachments/assets/28dea61d-fa18-430c-8f6b-7fbf899d8bda" />
+![cherep](https://github.com/user-attachments/assets/c48b1cfd-d1d0-4b36-84a7-ef2fd2779153)
