@@ -1,7 +1,7 @@
 <div align="center">
   
-![cherep-_1-](https://github.com/user-attachments/assets/0e0ea8d4-ff51-4b53-8772-b217309c5ae3)
+![rushlaughing](https://github.com/user-attachments/assets/4fab5d49-69c5-45b0-ac48-733f519a1e4b)
 
-**Пираты не на кораблях, они в сети.**
+**Pirates are not only on ships — some are online.**
 
 </div>
